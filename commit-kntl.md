@@ -1,1 +1,1 @@
-I Love Clementine
+I Love Cleopatra
