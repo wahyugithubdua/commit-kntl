@@ -1,1 +1,1 @@
-I Love Gaynelle
+I Love Rickie
