@@ -1,1 +1,1 @@
-I Love Amdahl
+I Love Kena
